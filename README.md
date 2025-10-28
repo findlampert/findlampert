@@ -3,7 +3,7 @@
 </div>
 
 
-󠀠ㅤ󠀠ㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://skaterlight.straw.page) ❯❯❯❯ [main github](https://github.com/foolascendent) ❯❯❯❯ [girl](https://github.com/heavensjester)♡[friends](https://github.com/eternallimbo)
+󠀠ㅤ󠀠ㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://skaterlight.straw.page) ❯❯❯❯ [main github](https://github.com/foolascendent) ❯❯❯❯ [girlfriend](https://github.com/heavensjester)♡
 
 <div align="center">ㅤ★
 </div>
